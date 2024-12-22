@@ -1,0 +1,2 @@
+# .github
+Free FIFA coins are the ultimate solution to elevate your FC 25 gaming experience without spending real money. With free FIFA coins, you can unlock premium rewards, build your dream Ultimate Team, and enjoy exclusive packs and upgrades. Our Free FIFA Coins Generator makes it easy to get FIFA points, packs, and coins quickly and securely. Designed for FC 25 players, this tool is simple to use and gives you a head start in building a competitive team. Whether you're a seasoned player or just starting, free FIFA coins are your key to staying ahead in the game.
